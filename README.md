@@ -1,5 +1,5 @@
 # 💫 About Me:
- BS IT 3rd semester student <br> Web Designer <br>Graphic Designer <br>Operational level student (ICMA Pakistan)<br>
+ BS IT 3rd semester student <br> Web Development <br>Graphic Designer <br>Operational level student (ICMA Pakistan)<br>
 
 
 ## 🌐 Socials:
